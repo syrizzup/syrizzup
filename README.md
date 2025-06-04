@@ -1,6 +1,7 @@
 ## meow
 
 read please https://rentry.co/syrupbaseone
+ALSO COMMENT PLEASE :3 https://syrizzup.atabook.org/
 
 <!--
 **syrizzup/syrizzup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
